@@ -1,4 +1,4 @@
-   Hi evereyone, Zarina here!
+   Hi everyone, Zarina here!
 
 👀 I am interested in blockchain. In addition to that, I enjoy sports and being out in nature. 
      Going out with the dogs, running, or just picking mushrooms in the forest. 
