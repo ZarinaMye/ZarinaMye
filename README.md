@@ -1,4 +1,4 @@
-   Hi
+   Hi evereyone, Zarina here!
 
 👀 I am interested in blockchain. In addition to that, I enjoy sports and being out in nature. 
      Going out with the dogs, running, or just picking mushrooms in the forest. 
@@ -8,3 +8,5 @@
             ✨ looking for an internship in autumn 2023 ✨
 
 📫   zarinabjorklund@gmail.com
+
+   Keep calm and code on!
