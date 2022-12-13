@@ -1,6 +1,6 @@
-   Hi everyone, Zarina here!
+   Hi everyone, Zarina here 
 
-👀 I am interested in blockchain. 
+👀 I am interested in web3 and blockchain technology. 
     In addition to that, I enjoy beeing active and outdoors. 
     Going out with the dogs, running, or just picking mushrooms in the forest. 
     Before I decide on a career change, I was active in equestrian sports and the equine industry. 
