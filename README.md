@@ -5,8 +5,7 @@
     Going out with the dogs, running, or just picking mushrooms in the forest. 
     Before I decide on a career change, I was active in equestrian sports and the equine industry. 
      
-🌱 Currently I’m studying to become a blockchain developer at Medieinstitutet
-            ✨ looking for an internship in autumn 2023 ✨
+🌱 Currently I’m studying to become a blockchain developer at Medieinstitutet ✨ 
 
 📫   zarinabjorklund@gmail.com
 
